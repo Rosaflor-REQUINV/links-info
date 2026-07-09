@@ -1,1 +1,1 @@
-# minors + antis DNI
+# no minors & antis allowed pls
