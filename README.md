@@ -1,1 +1,1 @@
-# links-info
+# minors + antis DNI
